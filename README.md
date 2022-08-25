@@ -1,1 +1,1 @@
-# rageminecraft.github.com
+# News
